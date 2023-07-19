@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AlienPlayer0418
+- 👀 I’m interested in Gaming, Art, and more!
+- 🌱 I’m currently learning Computer Networking and Engineering Technology.
+- 😄 I'm new to Code and am looking to become a Game Developer!
